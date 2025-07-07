@@ -12,7 +12,7 @@
 
 点击访问：<a href="https://haef.pages.dev/">黑料网-海角官方</a>
 
-点击访问：<a href=https://fge-7ja.pages.dev/"">黑料网-海角官方网</a>
+点击访问：<a href="https://fge-7ja.pages.dev/">黑料网-海角官方网</a>
 
 点击访问：<a href="https://gbs-3wd.pages.dev/">黑料-海角官方网</a>
 
